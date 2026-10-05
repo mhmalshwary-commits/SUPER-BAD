@@ -1,0 +1,1 @@
+SUPER BAD official site\nChannel: https://t.me/Super_Baaad\nGroup: https://t.me/supr_bad\nOwners: @qcacp, @pound_b\nMediators: @bb_ii, @xshuwari, @S7llG, @rracci, @uccca, @T_C1M, @sslbI, @Awab_1111, @blgaaa
